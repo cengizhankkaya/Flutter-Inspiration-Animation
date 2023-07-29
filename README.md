@@ -1,3 +1,6 @@
 
+![1](https://github.com/cengizhankkaya/Flutter-Inspiration-Animation/assets/92298156/9d370c92-3458-427c-ba00-6a42a52ea39a) ![1]
 
-![ekroooo](https://github.com/cengizhankkaya/Flutter-Inspiration-Animation/assets/92298156/46cdc020-b909-4def-8eae-68a92ccff5b4)                                                                             ![Ekran görüntüsü 2023-07-29 223626](https://github.com/cengizhankkaya/Flutter-Inspiration-Animation/assets/92298156/4b3ee139-0dae-4f04-824a-40fdc0d100d9)
+(https://github.com/cengizhankkaya/Flutter-Inspiration-Animation/assets/92298156/53412870-dca9-4e32-8500-89f5b164f988)
+
+![3](https://github.com/cengizhankkaya/Flutter-Inspiration-Animation/assets/92298156/7dfb7e8c-e60e-490c-9f25-43b7542f8741)
